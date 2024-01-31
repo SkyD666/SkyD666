@@ -1,8 +1,9 @@
 ### Hi there 👋
 
+## Looking for an internship/job...
+
 <p>
 📱 I focus on Android development.</br>
-💪 I'm learning backend.</br>
 🌟 Welcome to join the telegram group or discord server!</br>
 </p>
 
