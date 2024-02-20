@@ -1,6 +1,7 @@
 ### Hi there 👋
 
 ## Looking for an internship/job...
+## akarinnn666@gmail.com
 
 <p>
 📱 I focus on Android development.</br>
