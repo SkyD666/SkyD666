@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-## Looking for an internship/job...
+## Looking for an job...
 ## akarinnn666@gmail.com
 
 <p>
