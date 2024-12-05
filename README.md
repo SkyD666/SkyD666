@@ -5,7 +5,6 @@
 
 <p>
 📱 I focus on Android development.</br>
-🌟 Welcome to join the telegram group or discord server!</br>
 </p>
 
 <p>
