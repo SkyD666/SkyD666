@@ -1,6 +1,5 @@
 ### Hi there 👋
 
-## Looking for a job...
 ## akarinnn666@gmail.com
 
 <p>
